@@ -13,3 +13,4 @@ Seiring dengan bertumbuhnya tingkat aktivitas dan bisnis, mobil kini menjadi sal
 ![4](https://user-images.githubusercontent.com/110445915/191198144-4d2c0c3e-ec8e-4822-bfd4-fd01c4424746.png)
 ![5](https://user-images.githubusercontent.com/110445915/191198152-71d133bb-42b1-450a-82f1-cffb869e05c5.png)
 ![6](https://user-images.githubusercontent.com/110445915/191198157-c239a071-3910-4363-ab28-09b23dffa2de.png)
+![11](https://user-images.githubusercontent.com/110445915/191446059-5308d475-cbf4-4df8-b353-a311b8b50449.png)
